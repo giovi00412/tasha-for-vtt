@@ -1,2 +1,1 @@
-# tasha-for-vtt
-the name.
+no responsability, just something i made for fun 
